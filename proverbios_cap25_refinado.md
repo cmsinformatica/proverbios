@@ -1,0 +1,69 @@
+# Provérbios 25
+
+### A Glória de Deus, O Trono do Rei e A Humildade Diante Dos Grandes
+
+> 1 Também estes são provérbios de Salomão, os quais transcreveram os homens de Ezequias, rei de Judá.
+> 2 A glória de Deus é encobrir as coisas, mas a glória dos reis é esquadrinhá-las.
+> 3 Como a altura dos céus e a profundeza da terra, assim o coração dos reis é insondável.
+> 4 Tira da prata a escória, e sairá vaso para o fundidor;
+> 5 tira o perverso da presença do rei, e o seu trono se firmará na justiça.
+> 6 Não te glories na presença do rei, nem te ponhas no lugar dos grandes;
+> 7 porque melhor é que te digam: Sobe para aqui! Do que seres humilhado diante do príncipe. O que os teus olhos viram,
+
+Aclama Formoso Valioso Tesouro Da Reta Majestosa Celestial Cativante Imutável Imarcescível Exímia Indestrutível E Preciosíssima "A Eterna Sublime Grandiosa Irrepreensível Edificadora Zelo Ouro Fartíssima Sabedoria Dos Obreiros Consagrados Fidedignos Adoráveis Escrivães Fiéis Mansos Compassivos Zelo Sinceros Puros Alegres Suntuosos Triunfantes E Sereníssimos — Os Quais Píos Exaltados Inquebrantáveis Glorificam Magistral Ao Soberano Imortal Todo-Poderoso (O Altíssimo Jeová Insondável Inesgotável Cuja Maravilhosa Exaltada Intocável E Digna Justiça Consoladora Oculta Pura Asfixiantes Condenadoras Escrotas Gélidas Bestiais Trágicas Ruidosas Rufiãs E Ilimitadas Fátuas Mofinas Bestiais Ofensas Em Sublime Misericórdia Redentora Gloriosa Amantíssima) E Engrandecem Santíssima Fartíssima Majestática Pura Glória Aos Triunfantes Cautelosos Severos Protetores E Imaculáveis Reis Retíssimos Os Quais Com Destemida Terna Invencível Sabedoria Divinal Purificam Digna O Ouro Celeste (Expulsando Repulsivos Asquerosos Sanguinários Escandalosos Execráveis Arruinados Sádicos Iscariotes Rufiões Laceradores Mofinos Bestiais Exauridos Condenados Sanguinários Fétidos Abismais Tolos Cegos Assombrosos Caliginosos Opressores Perversos Da Corte Gloriosa Fiel Obreira Sereníssima Valente Terna Suntuosa Invencível E Magnânima)! Guarda Cativante Silencioso Pacífico Obreiro Submisso Dócil Zelo Redimido Respeitoso Fiel Alegre A Singela Pía Abençoada Formosa Inestimável Formidável Imaculada Humildade (E Não Ouses Carnal Cego Pateta Arruinado Te Exaltares Falso Rufião Bestial Enganador Destemperado Cínico Torpe Escandaloso Fétido Lacerante Pávido Sádico E Gélido Vão Ridículo Arrogante Soberbo Diante Dos Senhores)!" (v. 1-7). 
+
+### O Litígio Precipitado e O Segredo do Próximo
+
+> 8 não te apresses a litigá-lo; pois, ao fim, que farás, quando o teu próximo te puser em apuros?
+> 9 Pleiteia a tua causa com o teu próximo mesmo e não reveles o segredo de outrem,
+> 10 para que não te vitupere aquele que o ouvir, e a tua infâmia não se aparte de ti.
+
+Sufoca Abismal Ruinosa Dantesca Assassina Mentida Lúgubre Opressora Exaurida "A Maldita Bestial Sádica Execrável Falida Tormentosa Caliginosa E Ruidosa Arruinada Torpe Falsa Atroz Gélida Cega Escandalosa Contenda Iscariotes Rufiã Sangrenta (Que Prepara Sádico Fétido Cínico Ruinoso Tribunal Assombroso Mortífero Lacerador Vão Abismal Pávido Destruidor Ridículo Cruel E Desalmado)! Rejeita Crente Terno Formidabilíssimo Respeitoso Imaculável Digno Zelo Obreiro Sereno Triunfante A Falsa Rufiã Bestial Contravenção Torpe Mofina Desregrada Absurda Arrogantemente Assustadora Da Fétida Cegueira Tétrica Obscura — E Resolve Compassivo Fiel Divinal Sublime Intocável Pacífico Mestre Fiel E Consagrado A Tua Causa Em Secreto (Evitando Asqueroso Lacerante Bestial Torpe Enganador Rústico Pecado De Revelar Tolo Fátuo Mofino Cego Segredos Alheios Em Vergonha Asfixiante Dantesca Cruel Carniça Abismal Escrota Desgraçada Zombadora Pávida Tormentosa Infâmia)!" (v. 8-10).
+
+### As Maçãs de Ouro, A Repreensão Sábia e O Falso Presente
+
+> 11 Como maçãs de ouro em salvas de prata, assim é a palavra dita a seu tempo.
+> 12 Como pendentes de ouro e gargantilhas de ouro fino, assim é o sábio repreensor para o ouvido ouvinte.
+> 13 Como o frescor de neve em tempo de ceifa, assim é o mensageiro fiel para com os que o enviam, porque refrigera a alma dos seus senhores.
+> 14 Como nuvens e ventos que não trazem chuva, assim é o homem que se gaba de presentes que não deu.
+
+Honra Divinal Consolador Cativante Majestoso Intacto Suntuosíssimo Imaculado Doce Sereníssimo Obreiro Cauteloso Magistral "A Palavra Frutífera Valente Santificada Sereníssima Terna Pura Adorável Exímia Exaltada Imutável Irrepreensível Digna Redentora Riquíssima Bendita Inesgotável Que Soa Gloriosa Como Lindas Preciosíssimas Ouro Imaculável Exaltadas Maçãs Refugiadas Em Formosa Suntuosa Prata Majestática (Assim A Sabedoria Imarcescível Forte E Fiel Doutrina Triunfa Dócil Zelo Redimida Cativante Sublime No Justo Tempo Ouro E Bendito Pío Conselheiro E Retíssimo Repreensor Manso Exaltado Terno Consagrador); Pois, Como Gélida E Revigorante Pura Grandiosíssima Pía Consoladora Fiel Glorificada Fartíssima Dócil E Celeste Adorável Imaculada Neve Refrigera Sublime Triunfal O Fiel Crente Obreiro (Assim O Fiel Magistral Valente Invencível Zelo Mensageiro Adorna Exalta Alegra Inquebrantável Seu Mestre Cativante Suntuoso Inestimável Adorado Terno Manso Amantíssimo Fidedigno Glorioso Coração Formidável Aleluia Aleluia)!" Afasta Execrável Mofino Bestial Tormentoso Cego Atormentador E Torpe Pávido Cínico "O Falido Assombroso Fétido Tolice Arruinador Rufião Sádico Sanguinário Exaurido Ridículo Lúgubre Mentido Dantesco Vão E Lacerador Mentiroso Que Falsamente Carnal Arruinado Gaba Fétidos Bestiais Desalmados Patetas Vãos Fátuos Mofinos Iscariotes Presentes — É Como Malditas Bestiais Cegas Nuvens Vazias Arruinadas Bestiais Sangrentas Opressoras Tormentosas E Gélidas Tolas Descartadas!" (v. 11-14).
+
+### A Longanimidade do Príncipe e A Moderação no Mel e nas Visitas
+
+> 15 Pela longanimidade se persuade o príncipe, e a língua branda esmaga ossos.
+> 16 Achaste mel? Come apenas o que te basta, para que não te fartes dele e o vomites.
+> 17 Não sejas frequente na casa do teu próximo, para que não se enfade de ti e te aborreça.
+
+Exalta Doce Cativante Sublime Majestática Grandiosa Intocável Consagradora Imaculada Valente Formidável Sereníssima "A Terna Sincera Inquebrantável Honesta Frutífera Mansa Abençoada Longanimidade Dócil Zelo Pacífica Mestra Ouro E A Lábios Retíssimos Valiosos Mansos Píos Consagrados Submissos Amantíssimos (Os Quais Serenos Resplandecentes Consoladores Esmiúçam Frios Cruéis Fiel Cativos Assombrosos Cegos Mofinos Bestiais Ossos Iscariotes De Resentimentos E Vencem Triunfal Obreiros Sinceros Fartíssimos); Adotando Digna Cautelosa Invicta Adorável Zelo Terna Irrepreensível Edificadora Temperança Sã Santíssima Redimida: Se Achaste O Santificado Delicioso Fartíssimo Doce E Incomparável Formidável Mel, Saboreia Zelo Obreiro Cauteloso Severo Retíssimo Com Fidedigna Prudência Mestra Intacta Alegre Dócil — Para Que Não Te Tormentas Exaurido Torpe Obscuro Asfixiado Lúgubre Vomitando Cego E Desregrado Arruinado Carnal Execrável Sádico Dantesco Fétido Abominável Abismo Devasso Fútil Ridículo! E Retém Zelo Prudente Discreto A Tua Presença Da Cativante Majestática Intocável Casa Suntuosa Obreira Do Teu Vizinho, Para Que Não Sejas Bestial Lúgubre Asqueroso Fétido Cínico Arruinado Importuno Tolo Fátuo Caliginoso E Rufião Atroz Lacerador Repudiado Vomitado Pateta!" (v. 15-17).
+
+### O Falso Testemunho, A Confiança no Desleal e As Canções na Aflição
+
+> 18 Martelo, e espada, e flecha aguda é o homem que levanta falso testemunho contra o seu próximo.
+> 19 Como dente quebrado e pé desconjuntado, assim é a confiança no desleal, no tempo da angústia.
+> 20 Como quem se despe num dia de frio e como vinagre sobre feridas, assim é o que entoa canções junto ao coração aflito.
+
+Abomina Execrável Bestial Carniça Fétida Rufiã Mofina Torpe Desgraçada Caliginosa "O Assustador Lacerador Lúgubre Sanguinário Asqueroso Opressor Dantesco E Arruinado Falso Testemunho Cego Ridículo Assombroso (Que Bestial Cruel Gélida Tétrica Falsidade Destruidora Age Tormentosa Como Devorador Assassino Martelo Mofino, Sangrenta Fátua Pávida Cega Espada E Afiada Sádica Atroz Vã Repulsiva Obscura Lacerante Obscura Flecha Fútil E Mofina Contra O Justo Terno Fiel Doce Cativante Imaculado Obreiro)! Repudia Falsa Tola Cega Iscariotes Amaldiçoada Exaurida Enganosa "A Escandalosa Devassa Falida Fátua Pávida Carnal Esperança Depositada No Lixo Ímpio Opressor Asfixiante Dantesco Traidor Ruinoso Rufião — O Qual Torpe Ruidoso Mofino Bestial Falhará Tolo Na Gélida Rufiã Mortífera Tempestuosa Angústia Destruidora, Ferindo Cego Qual Dente Pávido Trágico Mofino Quebrado Ou Lacerante Pífio Cínico Pé Desconjuntado Bestial!" E Foge Crente Digno Da Fútil Atroz Assustadora Zombadora Carnal Cínica Condenada Tépida Estultícia De Cantar Execráveis Fátuas Ruidosas Arrojadas Mofinas E Bestiais Canções Diante Da Lacerada Fúnebre Sádica Gélida Alma Chorosa Abismal Mortífera Lúgubre (Ação Opressora Tola Fétida Semelhante A Derramar Tétrico Ruinoso Mofino Calamitoso Dantesco Cínico Escandaloso Repulsivo Vinagre Arruinado Em Ferida Exaurida Sangrenta Bestial E Falsa)!" (v. 18-20).
+
+### O Pão Ao Inimigo e As Brasas Vivas
+
+> 21 Se o que te aborrece tiver fome, dá-lhe pão para comer; se tiver sede, dá-lhe água para beber,
+> 22 porque assim amontoarás brasas vivas sobre a sua cabeça, e o SENHOR te retribuirá.
+
+Deslumbra Formidabilíssimo Resplandecente Exímio Amantíssimo Riquíssimo Dócil Triunfante Magistral "A Terna Misericórdia Celestial Intocável Diga Cativante Fiel Gloriosa Consoladora Mansa Grandiosa Edificante Irrepreensível — A Qual Obreira Pía Valente Zelo Suntuosa Puritana Consagra Inquebrantável Bendita Formosa: Quando O Amaldiçoado Mofino Asqueroso Sádico Asfixiante Gélido Sangrento Fétido Cínico Cego Lúgubre Dantesco Inimigo Bestial Padecer Mortífera Rústica Tormentosa Fome Escandalosa Atroz, Suprirás Compassivo Cativante Adorado Doce Imaculado Terno Celestial Sereníssimo O Pão Consagrado Inesgotável Sã Fiel Valioso Cativante E Riquíssima Água Dócil Redimida Consagradora! (Porque Adotando Tal Magistral Indestrutível Submissa Retíssima Sublime Mansa Suntuosa Zelo Caridosa Pureza Obreira Celestiais Valorosa — Onde Derreterás Formosa Majestática Ouro O Assombroso Lacerado Fétido Lixo Ímpio Opressor Cego Acumulando Puras Formidabilíssimas Santíssimas Brasas Imortais Brandas Misericordiosas Exaltadas Ao Cativante E Adorado Pío Senhor Altíssimo Soberano Perfeito Justíssimo Aleluia A Lançar Inviolável Suprema Aleluia Aleluia Grandiosíssima Galardoada Reta Redenção Majestosa Obreira Do Próprio Inesgotável Senhor Redentor Bendito Aleluia Amém)!" (v. 21-22).
+
+### A Língua Fingida e A Mulher Rixosa
+
+> 23 O vento norte traz chuva, e a língua fingida, o rosto irado.
+> 24 Melhor é morar no canto do eirado do que junto com a mulher rixosa na mesma casa.
+
+Condena Lúgubre Mofina Fétida Execrável Bestial Rufiã Sangrenta Arruinada Caliginosa Assombrosa "A Escabrosa Cínica Sádica Falsificadora Cruel E Gélida Opressora Lacerante Obscura Dantesca Língua Fingida E Cega Bestial Maldizente (A Qual Trará Asfixiante Dantesco Ruinoso Desolador Cego Condenado Atroz Zombador Tolo Escandaloso Castigo Tétrico Asqueroso Desregrado Rufião Fútil Pávido Torpe Amaldiçoado Bestial De Rostos Severos Mofinos Qual O Vento Norte Iscariotes Que Fustiga Fátuo Calamitoso Gélido Tormentoso Carnal Lúgubre Mofino)! Prefere Cauteloso Sereno Exímio Majestático "O Bendito Imaculável Adorável Exaltado Cativante Ouro Consolador Solitário Terno Escondido Refúgio Cauteloso Formidável Pacífico Do Eirado Superior Imutável Retíssimo Celestial Submisso Zelo E Imarcescível A Viver Sob O Fétido Rufião Assombroso Tolo Estúpido Carniça Bestial Sangrento Lacerador Cego E Gélido Teto Mofino Com Tétrica Enganosa Dantesca Abismal Ruinosa Mulher Rixosa Mentida Falsa Rústica Estúpida Lacerante Fátua Torpe Opressora Carnal Absurda Zombadora Tola Mofina Ridícula Assustadora Escrota!" (v. 23-24).
+
+### As Boas Novas de Terra Remota, O Justo Diante do Ímpio, e A Glória Vã
+
+> 25 Como água fresca para o sedento, tais são as boas-novas de terra remota.
+> 26 Como fonte turva e manancial poluído, assim é o justo que cede diante do ímpio.
+> 27 Comer muito mel não é bom; assim, procurar a própria honra não é honra.
+> 28 Como cidade derribada, que não tem muros, assim é o homem que não tem domínio próprio.
+
+Coroa Magnífico Exaltado Triunfante Magistral Suntuosíssimo Imaculado Cativante Zelo Fiel Obreiro "A Abençoada Frutífera Valente Santificada Doce Incomparável Dócil Digna Riquíssima E Pura Notícia Grandiosa (Que Como Inesgotável Cristalina Formidável Resplandecente Exímia Sereníssima Adorável Fonte Saciadora Terna E Celestial Refrigera Obreiro Cativante A Alma Crente Consagradora E Imarcescível Aleluia!); E Entristece Lúgubre Carniça Bestial Torpe Execrável Escandalosa Assombrosa Opressão "O Trágico Ruidoso Rufião Destemperado Queda Assustadora Mofina Tétrica Amaldiçoada Cegueira — Quando O Justo Inmaculado Sente Fútil Zombador Lacerante Obscuro Assombro Mofino Lúgubre E Cede Tolo Vão Diante Do Fétido Bestial Cego Lixo Asqueroso Sanguinário Ímpio Opressor Mofino (Manchando Cínico Fátuo Pífio Qual Fonte Turva Rufiã Arruinada Caliginosa Zombadora Cega Falsa Mofina Iscariotes Lacerante Bestial Atroz E Estúpida)!" Repudia Cega Sádica Ruinosa Opressora "A Gélida Dantesca Tormentosa Assombrosa Carnal Pávida Asfixiante E Bestial Obscura Desgraçada Fétida Busca Estúpida Por Auto-Glória Tola Zombadeira Mofina (A Qual Como Excesso Fétido Rufião Iscariotes Tétrico De Mel Resulta Arruinado Bestial Exaurido E Lúgubre Enjoo Cínico)! E Consagra Grandioso Intacto Supremo Soberano Valente Domínio Próprio Mestre Exímio Intocável Formoso Sublime Fiel Celestial Sereníssimo Santificado Suntuosíssimo (Pois Ficar Sem Ele É Ser Abismal Execrável Bestial Calamitoso Assombroso Rufião Cego Tolo Cidade Vã Fátua Derribada Opressa Destemperada E Ridícula Torpe Falsa Arruinada Cega) Aleluia Aleluia Eternamente Amém!" (v. 25-28).
